@@ -1,5 +1,5 @@
 # 💫 About Me:
-💬I'm Agung prastiyo 16yrs thanks to see my github profile<br>🔭 I’m currently learn programming autodidacly<br>to be software engineer<br>👯 I’m looking to colaborate with everyone who want to teach or study together<br>🌱 I’m currently learning autodidacly<br>⚡ just someone want to change his fate
+💬I'm Agung prastiyo 17yrs thanks to see my github profile<br>🔭 I’m currently learn programming autodidacly<br>to be software engineer<br>👯 I’m looking to colaborate with everyone who want to teach or study together<br>🌱 I’m currently learning autodidacly<br>⚡ just someone want to change his fate
 
 
 ## 🌐 Socials:
